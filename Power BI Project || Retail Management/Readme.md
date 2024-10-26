@@ -1,3 +1,10 @@
+
+![1](https://github.com/user-attachments/assets/e210c33f-f490-4a8a-9b41-94c1f29e3c13)
+
+![2](https://github.com/user-attachments/assets/c0139a5b-bcaa-421c-82cf-4ab1cde8c793)
+
+
+
 **Power BI Retail Management Report**
 
 **Overview**
